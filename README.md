@@ -7,7 +7,7 @@
 - 👀 I’m interested in leanring new everything.
 - 🌱 I’m currently learning promgramming Language
 - 💞️ I’m looking to collaborate on anything related cloud and Virtuialisting
-- 📫 How to reach me (https://www.linkedin.com/in/amnasohail25/)
+- 📫 How to reach me [linkedin](https://www.linkedin.com/in/amnasohail25/)
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: Love to take challanges and learn new technology
 
