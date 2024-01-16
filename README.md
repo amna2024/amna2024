@@ -5,7 +5,7 @@
 - 🌐 I am passionate about staying at the forefront of technology trends, ensuring I can meet and exceed the demands of today's rapidly evolving IT landscape.
 - 📈 Let's connect to explore how my skills and experience can contribute to your organization's IT goals. Feel free to reach out, and let's create something amazing together!
 - 👀 I’m interested in leanring new everything.
-- 🌱 I’m currently learning promgramming Language
+- 🌱 I’m currently learning programming Language
 - 💞️ I’m looking to collaborate on anything related cloud and Virtuialisting
 - 📫 How to reach me [linkedin](https://www.linkedin.com/in/amnasohail25/)
 - 😄 Pronouns: she/her
